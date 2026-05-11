@@ -132,4 +132,4 @@ M.Tech, Electrical Engineering
 Indian Institute of Technology Dharwad  
 
 ### Project Supervisor
-**Dr. Shashaank Aswatha Mattur
+**Dr. Shashaank Aswatha Mattur**
